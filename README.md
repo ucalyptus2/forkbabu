@@ -1,1 +1,1 @@
-<iframe src="https://giphy.com/embed/WoKqL8nGDJfFwGzrmR" width="480" height="431" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/ricardo-rp-pissa-WoKqL8nGDJfFwGzrmR">via GIPHY</a></p>
+![](https://media1.giphy.com/media/WoKqL8nGDJfFwGzrmR/giphy.gif?cid=ecf05e47nyppjzhm2czpg7ogim7r57xyicfj1yt6rs5exfkq&rid=giphy.gif)
