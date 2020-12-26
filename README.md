@@ -1,1 +1,2 @@
-<img src="https://media4.giphy.com/media/fdHg7T902uzLy/giphy.gif?cid=ecf05e47tlew8wbi9533wosti2vtbx0j920l1he4yr0tpuve&rid=giphy.gif" width="30000" height="700"/>
+# Only an artist like me can appreciate another artist.
+<img src="majnubhai.jpg" width="30000" height="700"/>
