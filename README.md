@@ -1,1 +1,1 @@
-<img src="https://hips.hearstapps.com/digitalspyuk.cdnds.net/16/39/1475150195-fgmeetquagmires.jpg?resize=480:*" width="30000" height="700"/>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTQ_Cdg5exT8b4S-ikN2qJQZwKU2tifCrFYSQ&usqp=CAU" width="30000" height="700"/>
